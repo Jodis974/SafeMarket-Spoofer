@@ -41,4 +41,3 @@ If you require assistance or encounter any issues:
 - 🌐 Website: [safemarket.xyz](https://safemarket.xyz)
 - 💬 Discord: [safemarket.xyz/discord](https://safemarket.xyz/discord)
 - 📧 Email: support-checkout@safemarket.xyz
-Thank you for choosing SafeMarket Spoofer for your security needs.
